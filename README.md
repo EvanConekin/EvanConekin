@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EvanConekin
-- 👀 I’m interested in guitar, travel,friend and family.
+- 👀 I’m interested in guitar, travel,friends and family.
 - 🌱 I’m currently learning Front End through FES 
 - 💞️ I’m looking to collaborate on ... well, we will see whats out here
 - 📫 How to reach me: econekin@gmail.com; rev.evan@outlook.com
