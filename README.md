@@ -6,7 +6,7 @@
 -  Fun fact: ... 29 years driving trucks
 -  CCNA year one cert from Fort Hays State,
 -  A+ certified and studied for MCSE
--  MOUS certified when it mattered 
+-  MOUS certified 
 -  BA from SIU-C psych/military science double major
 -  dual enrollment program (high school/college concurrent)
 -  with KHHS/SJCC 
