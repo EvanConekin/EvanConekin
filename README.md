@@ -4,10 +4,9 @@
 -  I’m looking to collaborate on ... well, we will see whats out here
 -  How to reach me: econekin@gmail.com; rev.evan@outlook.com
 -  Fun fact: ... 29 years driving trucks
--  a CCNA year one cert from
--  Fort Hays State,
+-  CCNA year one cert from Fort Hays State,
 -  A+ certified and studied for MCSE
--  MOUS certified when it mattered decades ago
+-  MOUS certified when it mattered 
 -  BA from SIU-C psych/military science double major
 -  dual enrollment program (high school/college concurrent)
 -  with KHHS/SJCC 
