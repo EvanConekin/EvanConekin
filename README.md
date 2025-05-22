@@ -3,7 +3,7 @@
 -  I’m currently learning Frontend through FES 
 -  I’m looking to collaborate on projects,pages,and designs
 -  How to reach me: econekin@gmail.com; rev.evan@outlook.com
--  Fun fact: ... 29 years driving trucks
+-  Fun fact: ... 29 year CDL-A holder, driving tractor trailers in various combinations 
 -  CCNA year one cert from Fort Hays State,
 -  A+ certified and studied for MCSE
 -  MOUS certified 
