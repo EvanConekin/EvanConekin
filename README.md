@@ -1,6 +1,6 @@
 -  Hi, I’m @EvanConekin
 -  I’m interested in guitar, travel,friends and family.
--  I’m currently learning Front End through FES 
+-  I’m currently learning Frontend through FES 
 -  I’m looking to collaborate on projects,pages,and designs
 -  How to reach me: econekin@gmail.com; rev.evan@outlook.com
 -  Fun fact: ... 29 years driving trucks
